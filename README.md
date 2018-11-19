@@ -39,4 +39,3 @@
 
 -   福利小说单独地址：  [http://read.myss.co](http://read.myss.co/)
 
-ps：如以上地址有失效，请尽快联系我解决，非常感谢支持！
