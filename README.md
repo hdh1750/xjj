@@ -12,11 +12,11 @@
 
 ### 小姐姐Live地址
 
--   小姐姐Live最新HK地址：[https://myss.co](https://myss.co/)
--   小姐姐Live最新LOS分流地址：[http://zb.myss.co](http://zb.myss.co/)
--   小姐姐Live备用地址：[http://xjj.site](http://xjj.site/)
--   小姐姐Live备用LOS地址：[http://zb.xjj.site](http://zb.xjj.site/)
--   小姐姐Live被墙地址：[https://live.myss.co](https://live.myss.co/)  |  [http://piu.tw](http://piu.tw/)  |  [http://yaa.tw](http://yaa.tw/)  |  [http://www.piu.tw](http://www.piu.tw/)
+-   小姐姐Live最新自动跳转地址：[https://myss.co](https://myss.co/)
+(推荐保存书签，免被墙)
+-   小姐姐Live直达地址：[http://xjj.site](http://xjj.site/)
+-   小姐姐Live备用地址：[http://xjj.life](http://xjj.life/)
+-   小姐姐Live被墙地址：[https://live.myss.co](https://live.myss.co/)  |  [http://piu.tw](http://piu.tw/)  |  [http://yaa.tw](http://yaa.tw/)  |  [http://xxjj.live](http://xxjj.live/) |  [http://xxjj.fun](http://xxjj.fun/)
 
 ### 树洞资源地址
 
@@ -26,10 +26,10 @@
 
 -   DMM预览最新地址：  [http://dmm.myss.co](http://dmm.myss.co/)
 
-### 91先森地址
+### 91先森地址（歇菜）
 
--   91先森最新地址：  [http://91.myss.co](http://91.myss.co/)
--   91先森备用地址：  [http://91sir.myss.co](http://91sir.myss.co/)
+-   91先森最新地址：  [http://91sir.myss.co](http://91sir.myss.co/)
+-   91先森被墙地址：  [http://91.myss.co](http://91.myss.co/)
 
 ### Wcar
 
